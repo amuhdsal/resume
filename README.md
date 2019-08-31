@@ -1,2 +1,2 @@
 # halfchilde
-https://twitter.com/amuhdsal/status/1165065401769836545?s=19
+https://lucid.blog/amuhdsalisu/post/building-my-cv-f29
